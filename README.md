@@ -6,4 +6,4 @@ Mit navn er Lucas Johansen, og er 20 år gammel. Jeg bor lidt ude for Næstved, 
 
 
 ! [Image of Me]
-(https://scontent.fcph2-1.fna.fbcdn.net/v/t31.0-8/10580699_10202693993933477_2159546407972241977_o.jpg?_nc_cat=107&_nc_oc=AQnD9Dic2uBSkXigfN-h08UCnUiYJHFdNaVAuwXn8mMX2_Z03RxXg_Za9WkFhXAZco4&_nc_ht=scontent.fcph2-1.fna&oh=97e7db8c82b7071bdb0cb7d965e18e2c&oe=5DFB2563)
+(https://gyazo.com/84864c95484d513e106cddf70a6f8997?fbclid=IwAR03eaTblDJc_-Jjafcli9-Osg9LPkJ7J6uP_A157ev6wVHW1MJ3YUfC3_g)
